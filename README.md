@@ -10,11 +10,9 @@
 
 ### 3. Game Of Thrones
 ![image](https://user-images.githubusercontent.com/104190205/206831098-ed643e78-7734-4d87-a3ea-e387265c9a95.png)
-3. Game Of Thrones
 
 ### 4. Black Clover
 ![image](https://user-images.githubusercontent.com/104190205/206831109-eed6bb7a-c596-47fc-b16d-564ce29027e8.png)
-4. Black Clover
 
 ### 5. Harry Potter
 ![image](https://user-images.githubusercontent.com/104190205/206831116-fd523778-38c2-450f-8e8a-876422bb7525.png)
