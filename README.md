@@ -2,7 +2,7 @@
 
 ## My favorite series
 
-[SpongeBob](https://th.bing.com/th/id/R.8764cefa9f88169972a8a20f2a69e8ce?rik=JvULFHMygM5ewg&riu=http%3a%2f%2fimages6.fanpop.com%2fimage%2fphotos%2f34400000%2fspongebob-spongebob-squarepants-34425372-2000-1873.jpg&ehk=UGXXP1CQxFod1FEm6skVzqcVk3IUeW7SGJnTceNlyyY%3d&risl=&pid=ImgRaw&r=0)
+![image](https://user-images.githubusercontent.com/104190205/206831060-75123c53-c5ca-4017-ba32-9d3ee122f9d0.png)
 1. Spongebob Squarepants
 
 [Aang](https://th.bing.com/th/id/R.cec1bd2f41269f09f764668d6daff399?rik=HAavXICjSZCfgQ&riu=http%3a%2f%2fwww.hdwallpapers.in%2fwalls%2favatar_the_last_airbender-wide.jpg&ehk=XC8yBynTiGTkd2QHHzGn3%2bBXHTlEl85q6ZTPQldDal8%3d&risl=&pid=ImgRaw&r=0)
